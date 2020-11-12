@@ -5,3 +5,4 @@
 - 🔭 I'm looking for an internship!
 - 📫 How to reach me: Email - ndrimousis@hotmail.com
 - ⚡ Fun fact: I love working out!
+- 🗣️ Languages: Greek(native),English,German
